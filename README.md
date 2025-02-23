@@ -5,7 +5,7 @@
 
 Do you want to play cricket in Cambridge? 🏏 it is really fun!
 
-All levels welcome!
+All levels welcome! We play cricket with a tennis ball.
 
 Please get in touch with Soumya Banerjee, Niall Taylor, Andrew Caines or Challenger Mishra.
 
