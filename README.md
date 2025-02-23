@@ -19,3 +19,5 @@ We play on Saturdays at 1 PM at Eddington cricket ground (near Sainsbury's in We
 Soumya Banerjee
 
 sb2333@cam.ac.uk
+
+![](cricket.png)
